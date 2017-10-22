@@ -4,7 +4,7 @@ La trilogía de la escritura está compuesta por tres libros cortos de reflexion
 
 * [_Escritura con ordenador. Cómo la informática ayuda a la literatura_](http://www.escritura-ordenador.tk).
 
-* [_Escritura y publicación. Sobre la edición literaria_](http://www.http://www.escritura-publicacion.tk/).
+* [_Escritura y publicación. Sobre la edición literaria_](http://www.escritura-publicacion.tk/).
 
 Pongo la trilogía de la escritura a disposición del público, porque entiendo que puede servir a quien la lea. Aunque es importante una aclaración evitar incomprensiones.
 
